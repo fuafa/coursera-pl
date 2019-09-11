@@ -1,1 +1,1 @@
-Coursera Assigments
+Coursera Assignments
